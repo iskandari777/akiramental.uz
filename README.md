@@ -1,1 +1,1 @@
-# akiramental.uz
+iskandari777.akiramental.uz
