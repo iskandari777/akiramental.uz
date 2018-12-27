@@ -1,0 +1,1 @@
+# akiramental.uz
